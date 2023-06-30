@@ -1,1 +1,1 @@
-# wrighteee.github.io
+# [wrighteee.github.io](https://wrighteee.github.io/)https://wrighteee.github.io/
